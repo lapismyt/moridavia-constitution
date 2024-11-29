@@ -98,7 +98,7 @@ We, the citizens of the Democratic People's Republic of Mordavia, unite under th
    - Proposed amendments require a two-thirds majority vote to pass.  
 
 2. **Periodic Review**  
-   - The Constitution shall be reviewed every five years to ensure it remains relevant and effective.  
+   - The Constitution shall be reviewed every year to ensure it remains relevant and effective.  
 
 ---
 
